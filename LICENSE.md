@@ -1,4 +1,4 @@
-#  
+#  blox fruits Script ultimate is the best blox fruits Script, featuring auto-heal and undetectable. Safe and powerful for all your needs.
 
 
 
